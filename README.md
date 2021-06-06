@@ -1,1 +1,0 @@
-# ARTERODROT0sxmjm
